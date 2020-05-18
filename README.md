@@ -1,2 +1,2 @@
-# curr-culo
-Aqui neste repositório estarão mimiha descrições profisionais.
+# Currículo
+Aqui neste repositório estarão mimihas descrições profisionais.
