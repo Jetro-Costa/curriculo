@@ -32,7 +32,7 @@ costajetro@bol.com.br
 
 -   2011:
     
-    1.  **Serviços diversos em empreendimento familiar (lanchonete).**
+  - Serviços diversos em empreendimento familiar (lanchonete).
           
 
 4.  **CURSOS DE CURTA E LONGA DURAÇÃO**
