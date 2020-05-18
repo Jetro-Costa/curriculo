@@ -1,6 +1,6 @@
 **CURRICULUM**
 
-costajetro@gmail.com
+costajetro@bol.com.br
 
 1.  **QUALIFICAÇÕES PROFISSIONAIS**
     
