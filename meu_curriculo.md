@@ -1,6 +1,6 @@
 **CURRICULUM**
 
-costajetro@bol.com.br
+jetrocosta@yandex.com
 
 1.  **QUALIFICAÇÕES PROFISSIONAIS**
     
@@ -40,7 +40,6 @@ costajetro@bol.com.br
 
 -   **Inglês** –ICBEU – Período: 09/3/2008 a 14/12/2011 – Carga Horária: 480h
     
-
 -   **Inglês conversação** – Nova Igreja Batista – Período 13/01/2012 a 25/06/2012– Carga horária: 80 horas
     
 -   **Piano** – Universidade Federal do Amazonas – Período: 15/3/2008 a 23/12/2009 – Carga Horária: 160h
