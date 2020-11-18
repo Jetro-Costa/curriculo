@@ -22,7 +22,7 @@ jetrocosta@yandex.com
     
 -   2013-2014: **Técnico em análise de sistemas.**
     
--   2012-2014: Ensino médio integrado ao técnico em informática.
+-   2012-2014: **Ensino médio integrado ao técnico em informática**.
     
 -   2015-em andamento: Medicina na Universidade do Estado do Amazonas.
       
@@ -33,6 +33,14 @@ jetrocosta@yandex.com
 -   2011:
     
   - Serviços diversos em empreendimento familiar (lanchonete).
+  
+-   2014:
+    
+  - Estágio em suporte de informática na Secretaria de Educação de Manaus.
+  
+-   2011 em diante:
+    
+  - Usuário intermediário do GNU/Linux.
           
 
 4.  **CURSOS DE CURTA E LONGA DURAÇÃO**
